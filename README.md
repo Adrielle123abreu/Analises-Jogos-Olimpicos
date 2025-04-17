@@ -11,7 +11,7 @@ Inspirada pelo evento e pela curiosidade, foi feita uma análise de dados abrang
 
 </div>
 
-![Instagram QR Code](https://qrco.de/bfv0rZ)
+(https://qrco.de/bfv0rZ)
 
 
 <br>
