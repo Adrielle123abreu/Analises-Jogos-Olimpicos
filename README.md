@@ -11,7 +11,8 @@ Inspirada pelo evento e pela curiosidade, foi feita uma análise de dados abrang
 
 </div>
 
-(https://qrco.de/bfv0rZ)
+![image](https://github.com/user-attachments/assets/ae41d241-6541-4588-9ba3-5f20a99ba46a)
+
 
 
 <br>
